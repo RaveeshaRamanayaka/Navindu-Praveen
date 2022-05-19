@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **talktopra@gmail.com**
 
-- ⚡ Fun fact **I am funny**
+- ⚡ Fun fact **😁**
 
 <h3 align="left">Connect with me:</h3>
 
